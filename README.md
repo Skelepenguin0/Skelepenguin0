@@ -1,4 +1,8 @@
-Hello, I'm Skelepenguin0. I make stuff sometimes.
+🐧🐧🐧🐧Skelepenguin0🐧🐧🐧🐧
+____________________________________
+Hello, welcome to my github profile.
+____________________________________
+🐧🐧🐧🐧Skelepenguin0🐧🐧🐧🐧
 
 
 <!---
