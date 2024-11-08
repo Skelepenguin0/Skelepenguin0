@@ -4,7 +4,6 @@ Hello, welcome to my github profile.
 ____________________________________
 🐧🐧🐧🐧Skelepenguin0🐧🐧🐧🐧
 
-https://www.reddit.com/user/Skelepenguin0/
 
 <!---
 Skelepenguin0/Skelepenguin0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
